@@ -1,4 +1,4 @@
-<h>><b><i> <16pt>Binoculars </16pt></b></i></h>
+<b><i><16pt>Binoculars </16pt></b></i>
 
  <p><B>preventing is better done
 but why not to cire nut to prevent.
