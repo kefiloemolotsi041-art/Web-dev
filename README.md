@@ -8,4 +8,4 @@ the cronic viruses created</B> </p>
 <B><u>THE MAJOR OBJECTIVE</></B>
 <p>Interlactual capitalizim is a safety need</p>
 
-
+<img></img>
